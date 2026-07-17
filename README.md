@@ -2,7 +2,7 @@
 
 ## 강의자료
 
-[PDF 강의자료 열기](https://cuo365-my.sharepoint.com/:f:/g/personal/jonghyuk_cu_ac_kr/IgCHlIoscfysQ6WbQ_r566WGASFqgyU6_T9SN379HYL0eT0?e=UcwMde)
+[PDF 강의자료 열기](https://cuo365-my.sharepoint.com/:f:/g/personal/jonghyuk_cu_ac_kr/IgCHlIoscfysQ6WbQ_r566WGAXsyKl6XqfYXfqjfEfEl5QA?e=m8xa5h)
 
 자료 암호는 강의실에서 안내합니다.
 
